@@ -1,1 +1,2 @@
-# sams2.0
+# SAM-2.0
+New Jersey Paralympic
